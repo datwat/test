@@ -1,1 +1,1 @@
-lol\nlol\nlol\nlol\nlol
+lmao\nlmao\nlman\nlmao\nlmao
